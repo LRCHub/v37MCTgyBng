@@ -1,0 +1,42 @@
+# ねぎ塩豚丼 – Tonight
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Hold on tight
+You'll be strong tonight
+聞こえた声に従う
+Find a way to fight
+Shining stars so bright
+You'll be strong tonight tonight
+勝手に作られたcompetition
+また比べられてfrustration
+Gotta face my fears
+Hear the silent tears
+声にならない
+勝手にしとけよimagination
+どうでもいいことをdiscussion
+Gotta face my fears
+Hear the silent tears
+何も要らない
+限界寸前2秒手前で
+目を瞑って
+Hold on tight
+You'll be strong tonight
+聞こえた声に従う
+Find a way to fight
+Shining stars so bright
+You'll be strong tonight tonight
+Hold on tight
+You'll be strong tonight
+聞こえた声に従う
+Find a way to fight
+Shining stars so bright
+You'll be strong tonight
+Hold on tight
+You'll be strong tonight
+聞こえた声に従う
+Find a way to fight
+Shining stars so bright
+You'll be strong tonight tonight
+```
